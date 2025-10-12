@@ -43,4 +43,4 @@ A car dealership uploads raw auction images.
 
 ---
 
-### 📂 Folder Structure
+
