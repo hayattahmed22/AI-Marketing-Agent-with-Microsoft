@@ -26,6 +26,7 @@ It automates social media campaigns, generates captions from car catalogues, and
 ---
 
 ### 🧑‍💻 How It Works
+• Extracts and analyzes catalogue data to generate personalized, high-converting captions tailored to each vehicle and target audienc
 1. Upload a car catalogue or raw product images.  
 2. The AI reads and processes the data.  
 3. It generates captions, enhanced images, and marketing videos automatically.  
