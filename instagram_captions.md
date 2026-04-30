@@ -1,0 +1,484 @@
+# Instagram Captions Generated From Car Catalog
+
+These captions were generated from the structured vehicle catalog. Each listing is separated for quick copy-paste into Instagram, Facebook, or WhatsApp.
+
+## 1. 2018 Toyota Corolla — Stock 23451
+
+```text
+🚗 2018 Toyota Corolla now available!
+
+This used sedan is clean, stylish, and ready for its next owner.
+
+✅ Mileage: 85000 km
+✅ Engine: 1.8L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: FWD
+✅ Exterior: White
+✅ Interior: Black
+✅ Stock No: 23451
+
+💰 Price: R185,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Toyota #Corolla #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 2. 2019 Honda Civic — Stock 23452
+
+```text
+🚗 2019 Honda Civic now available!
+
+This used sedan is clean, stylish, and ready for its next owner.
+
+✅ Mileage: 72000 km
+✅ Engine: 2.0L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: FWD
+✅ Exterior: Silver
+✅ Interior: Black
+✅ Stock No: 23452
+
+💰 Price: R210,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Honda #Civic #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 3. 2017 BMW 320i — Stock 23453
+
+```text
+🚗 2017 BMW 320i now available!
+
+This used sedan gives you a premium look, smooth drive, and luxury feel.
+
+✅ Mileage: 95000 km
+✅ Engine: 2.0L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: RWD
+✅ Exterior: Black
+✅ Interior: Beige
+✅ Stock No: 23453
+
+💰 Price: R265,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#BMW #320i #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 4. 2018 Mercedes-Benz C200 — Stock 23454
+
+```text
+🚗 2018 Mercedes-Benz C200 now available!
+
+This used sedan gives you a premium look, smooth drive, and luxury feel.
+
+✅ Mileage: 88000 km
+✅ Engine: 2.0L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: RWD
+✅ Exterior: White
+✅ Interior: Black
+✅ Stock No: 23454
+
+💰 Price: R295,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#MercedesBenz #C200 #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 5. 2016 Volkswagen Golf 7 — Stock 23455
+
+```text
+🚗 2016 Volkswagen Golf 7 now available!
+
+This used hatchback is ideal for city driving, fuel saving, and everyday convenience.
+
+✅ Mileage: 99000 km
+✅ Engine: 1.4L Petrol
+✅ Transmission: Manual
+✅ Drivetrain: FWD
+✅ Exterior: Red
+✅ Interior: Black
+✅ Stock No: 23455
+
+💰 Price: R175,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Volkswagen #Golf7 #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 6. 2019 Audi A4 — Stock 23456
+
+```text
+🚗 2019 Audi A4 now available!
+
+This used sedan gives you a premium look, smooth drive, and luxury feel.
+
+✅ Mileage: 68000 km
+✅ Engine: 2.0L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: AWD
+✅ Exterior: Grey
+✅ Interior: Black
+✅ Stock No: 23456
+
+💰 Price: R320,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Audi #A4 #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 7. 2020 Ford Ranger — Stock 23457
+
+```text
+🚗 2020 Ford Ranger now available!
+
+This used bakkie is built for strength, practicality, and both work and lifestyle use.
+
+✅ Mileage: 60000 km
+✅ Engine: 2.2L Diesel
+✅ Transmission: Automatic
+✅ Drivetrain: RWD
+✅ Exterior: Blue
+✅ Interior: Black
+✅ Stock No: 23457
+
+💰 Price: R410,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Ford #Ranger #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 8. 2021 Toyota Hilux — Stock 23458
+
+```text
+🚗 2021 Toyota Hilux now available!
+
+This used bakkie is built for strength, practicality, and both work and lifestyle use.
+
+✅ Mileage: 55000 km
+✅ Engine: 2.4L Diesel
+✅ Transmission: Manual
+✅ Drivetrain: 4WD
+✅ Exterior: White
+✅ Interior: Grey
+✅ Stock No: 23458
+
+💰 Price: R450,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Toyota #Hilux #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 9. 2019 Nissan X-Trail — Stock 23459
+
+```text
+🚗 2019 Nissan X-Trail now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 70000 km
+✅ Engine: 2.5L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: AWD
+✅ Exterior: Silver
+✅ Interior: Black
+✅ Stock No: 23459
+
+💰 Price: R300,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Nissan #XTrail #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 10. 2020 Hyundai Tucson — Stock 23460
+
+```text
+🚗 2020 Hyundai Tucson now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 50000 km
+✅ Engine: 2.0L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: FWD
+✅ Exterior: White
+✅ Interior: Black
+✅ Stock No: 23460
+
+💰 Price: R315,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Hyundai #Tucson #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 11. 2018 Kia Sportage — Stock 23461
+
+```text
+🚗 2018 Kia Sportage now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 78000 km
+✅ Engine: 2.0L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: FWD
+✅ Exterior: Black
+✅ Interior: Black
+✅ Stock No: 23461
+
+💰 Price: R290,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Kia #Sportage #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 12. 2021 Mazda CX-5 — Stock 23462
+
+```text
+🚗 2021 Mazda CX-5 now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 42000 km
+✅ Engine: 2.5L Petrol
+✅ Transmission: Automatic
+✅ Drivetrain: AWD
+✅ Exterior: Red
+✅ Interior: Black
+✅ Stock No: 23462
+
+💰 Price: R380,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Mazda #CX5 #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 13. 2019 Isuzu D-Max — Stock 23463
+
+```text
+🚗 2019 Isuzu D-Max now available!
+
+This used bakkie is built for strength, practicality, and both work and lifestyle use.
+
+✅ Mileage: 83000 km
+✅ Engine: 2.5L Diesel
+✅ Transmission: Manual
+✅ Drivetrain: RWD
+✅ Exterior: White
+✅ Interior: Grey
+✅ Stock No: 23463
+
+💰 Price: R365,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Isuzu #DMax #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 14. 2017 Chevrolet Trailblazer — Stock 23464
+
+```text
+🚗 2017 Chevrolet Trailblazer now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 92000 km
+✅ Engine: 2.8L Diesel
+✅ Transmission: Automatic
+✅ Drivetrain: 4WD
+✅ Exterior: Silver
+✅ Interior: Black
+✅ Stock No: 23464
+
+💰 Price: R310,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Chevrolet #Trailblazer #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 15. 2022 Renault Kwid — Stock 23465
+
+```text
+🚗 2022 Renault Kwid now available!
+
+This used hatchback is ideal for city driving, fuel saving, and everyday convenience.
+
+✅ Mileage: 25000 km
+✅ Engine: 1.0L Petrol
+✅ Transmission: Manual
+✅ Drivetrain: FWD
+✅ Exterior: Orange
+✅ Interior: Black
+✅ Stock No: 23465
+
+💰 Price: R145,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Renault #Kwid #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 16. 2021 Suzuki Swift — Stock 23466
+
+```text
+🚗 2021 Suzuki Swift now available!
+
+This used hatchback is ideal for city driving, fuel saving, and everyday convenience.
+
+✅ Mileage: 30000 km
+✅ Engine: 1.2L Petrol
+✅ Transmission: Manual
+✅ Drivetrain: FWD
+✅ Exterior: Blue
+✅ Interior: Black
+✅ Stock No: 23466
+
+💰 Price: R165,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Suzuki #Swift #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 17. 2020 Toyota Fortuner — Stock 23467
+
+```text
+🚗 2020 Toyota Fortuner now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 65000 km
+✅ Engine: 2.8L Diesel
+✅ Transmission: Automatic
+✅ Drivetrain: 4WD
+✅ Exterior: White
+✅ Interior: Brown
+✅ Stock No: 23467
+
+💰 Price: R520,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Toyota #Fortuner #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 18. 2019 BMW X3 — Stock 23468
+
+```text
+🚗 2019 BMW X3 now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 70000 km
+✅ Engine: 2.0L Diesel
+✅ Transmission: Automatic
+✅ Drivetrain: AWD
+✅ Exterior: Grey
+✅ Interior: Black
+✅ Stock No: 23468
+
+💰 Price: R490,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#BMW #X3 #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 19. 2018 Mercedes-Benz GLE 250d — Stock 23469
+
+```text
+🚗 2018 Mercedes-Benz GLE 250d now available!
+
+This used SUV is perfect for buyers who want comfort, space, and strong road presence.
+
+✅ Mileage: 85000 km
+✅ Engine: 2.2L Diesel
+✅ Transmission: Automatic
+✅ Drivetrain: AWD
+✅ Exterior: Black
+✅ Interior: Beige
+✅ Stock No: 23469
+
+💰 Price: R560,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#MercedesBenz #GLE250d #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
+## 20. 2022 Volkswagen Polo — Stock 23470
+
+```text
+🚗 2022 Volkswagen Polo now available!
+
+This used hatchback is ideal for city driving, fuel saving, and everyday convenience.
+
+✅ Mileage: 20000 km
+✅ Engine: 1.0L Petrol
+✅ Transmission: Manual
+✅ Drivetrain: FWD
+✅ Exterior: White
+✅ Interior: Black
+✅ Stock No: 23470
+
+💰 Price: R210,000
+
+We assist with export and paperwork for Zimbabwe, Botswana, Zambia, and nearby countries.
+
+📩 DM us today to secure this vehicle before it’s gone.
+
+#Volkswagen #Polo #CarForSale #UsedCars #AutoNet #SouthAfricaCars #ZimbabweCars #BotswanaCars #ZambiaCars #ExportCars #CarDeals
+```
+
